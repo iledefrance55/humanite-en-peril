@@ -17,6 +17,20 @@ Un livre de 49 pages qui va directement au coeur du problème, en mots simples e
 - **Y a-t-il de l'espoir ?** : Le Principe de Protection révolutionnaire
 - **10 gestes concrets** que vous pouvez faire dès aujourd'hui
 
+## 💌 VOS TÉMOIGNAGES M'IMPORTENT
+
+Après des décennies de combat pour l'environnement, j'ai besoin de savoir si ce travail fait une différence dans VOS vies.
+
+**Écrivez-moi si :**
+- Vous avez adopté des actions concrètes grâce à ce livre
+- Votre vision de l'environnement a changé
+- Vous avez des questions, défis ou succès à partager
+- Vous voulez simplement dire que ça vous a touchée
+
+📧 **france.lamontagne@hotmail.com**
+
+*Vos histoires nourrissent mon espoir et ma persévérance.*
+
 ## Licence
 
 MIT License - Libre de partager et utiliser
