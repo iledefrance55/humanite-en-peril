@@ -27,7 +27,7 @@ Après des décennies de combat pour l'environnement, j'ai besoin de savoir si c
 - Vous avez des questions, défis ou succès à partager
 - Vous voulez simplement dire que ça vous a touchée
 
-📧 **france.lamontagne@hotmail.com**
+📧 **france_lamontagne@hotmail.com**
 
 *Vos histoires nourrissent mon espoir et ma persévérance.*
 
